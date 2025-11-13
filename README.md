@@ -82,7 +82,7 @@ Contributions are welcome. Please follow the steps below:
 
 ## Contact
 
-Mail: prathmeshgolande0711@gmail.com
+Mail: atharvlolge555@gmail.com
 
 ## Learn More
 
